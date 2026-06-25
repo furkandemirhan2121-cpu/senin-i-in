@@ -1,1 +1,1 @@
-# senin-i-in
+# senin-için-in
